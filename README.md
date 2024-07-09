@@ -1,16 +1,21 @@
-## Hi there 👋
-
-<!--
-**k3tchupfan/k3tchupfan** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<p align="center">
+ʜɪɪ, ɪ ʜᴀᴛᴇ ᴅᴏɪɴɢ ᴀʙᴏᴜᴛ ᴍᴇ'ꜱ
+<p align="center">
+  <img src= "https://img1.picmix.com/output/pic/normal/4/4/2/5/11105244_0f3c0.gif"
+</p>
+<p align="center">
+ᴀɴxɪᴇᴛʏ/ᴀᴜᴛɪꜱᴍ/ᴀᴅʜᴅ, ʙɪᴘᴏʟᴀʀ + ꜱᴏᴍᴇ ᴏᴛʜᴇʀ ᴍᴇɴᴛᴀʟ ɪꜱꜱᴜᴇꜱ
+<p align="center">
+ʏᴏᴜ ᴄᴀɴ ᴄᴀʟʟ ᴍᴇ ʟᴇᴏɴ ᴏʀ ᴀᴄᴇ
+<p align="center">
+ʜᴇ/ᴛʜᴇʏ
+<p align="center">
+ɪ ʜᴇᴀᴠɪʟʏ ʟɪᴋᴇ ᴘʟᴀʏɪɴɢ ɢᴀᴍᴇꜱ, ᴡᴀᴛᴄʜɪɴɢ ꜱʜɪᴛ ᴏɴ ʏᴛ, ᴀɴᴅ ꜱᴏᴍᴇ ꜱʜᴏᴡꜱ ꜱᴏᴍᴇᴛɪᴍᴇꜱ
+<p align="center">
+ᴄᴜʀʀᴇɴᴛʟʏ ɪ ʜᴀᴠᴇ ᴍᴀɴʏ ɪɴᴛᴇʀᴇꜱᴛꜱ, ᴛʜᴇ ᴍᴀɪɴ ʙᴇɪɴɢ ᴘᴏꜱᴛᴀʟ :3 
+<p align="center">
+ɪ ᴛʏᴘᴇ ꜰᴀꜱᴛ, ꜱᴏʀʀʏ ɴᴏᴛ ꜱᴏʀʀʏ ꜰᴏʀ ᴛʏᴘᴏꜱ. ɪꜰ ʏᴏᴜ ᴅᴏɴᴛ ᴋɴᴏᴡ ᴡʜᴀᴛ ɪ ᴊᴜꜱᴛ ꜱᴀɪᴅ, ᴊᴜꜱᴛ ᴛᴇʟʟ ᴍᴇ :)
+<p align="center">
+ɪ ꜱᴡᴇᴀʀ ᴀ ʟᴏᴛ !! 
+<p align="center">
+𝗙𝗢𝗥 𝗠𝗨𝗖𝗛 𝗠𝗢𝗥𝗘 𝗜𝗡𝗙𝗢 𝗖𝗛𝗘𝗖𝗞 𝗠𝗬 𝗖𝗔𝗥𝗥𝗗 𝗔𝗡𝗗 𝗣𝗥𝗢𝗡𝗢𝗨𝗡𝗦 𝗣𝗔𝗚𝗘
